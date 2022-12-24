@@ -1,0 +1,1 @@
+# mirea-samsung-mobile-project
